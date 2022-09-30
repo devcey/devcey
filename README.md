@@ -1,1 +1,3 @@
-Yes, hi! I am devc. I'm just a weird person. That's about it.
+Oh hello there. I am devcey. I just do stuff sometimes.
+
+...what else did you expect?
