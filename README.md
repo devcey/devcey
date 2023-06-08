@@ -1,3 +1,4 @@
-Oh hello there. I am devcey. I just do stuff sometimes.
+i do something once in a blue moon and never finish it
 
-...what else did you expect?
+
+except my webpage, which i cant stop working on
