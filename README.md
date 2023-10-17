@@ -1,6 +1,3 @@
-i do something once in a blue moon and never finish it
+i use arch btw
 
-
-except my webpage, which i cant stop working on
-
-except that was a lie
+i have a stupid website (thank you github pages youre nice)
