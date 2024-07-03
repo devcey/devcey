@@ -1,3 +1,1 @@
-i use arch btw
-
-i have a stupid website (thank you github pages youre nice)
+i use debian fyi
